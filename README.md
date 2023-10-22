@@ -43,3 +43,15 @@ Plus the ongoing challenge of building a cohesive distributed company across Tel
 * you want to join a startup and accelerate your career
 * you're excited about working in a diverse, distributed team
 * you want to help more people use open source and stay secure
+
+* All software by Mikołaj Roszak https://github.com/mikolajroszak
+* U wanna use it, buy it, integrate, see ours profiles on Linkedin. Gate : https://www.linkedin.com/in/mikolajroszak
+* Me - founder of Cyfrowe ID' startup. 
+Investor of EquityZen and AngelList. 
+Member of Nike' .SWOOSH. 
+I'm the owner of Krabowe Skorupki' platform.
+Registered Investment Advisor (RIA), Cash Investments, Developed International Markets. 
+* Dane konta Revolut
+IBAN: LT41 3250 0894 7676 6825
+BIC: REVOLT21 
+Odbiorca: Mikołaj Roszak
